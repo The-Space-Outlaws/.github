@@ -12,7 +12,7 @@ Here are some out of this world projects created by our gang:
 
 | Project | Description | Link |
 | :--- | :--- | :--- |
-| **Entrepa's Workshop** | Lots of cool stuff made by Entrepa | [Visit Website 🔗](https://trollz.entraptadoeztech.nya.je/) |
+| **Entrapta's Workshop** | Lots of cool stuff made by Entrapta| [Visit Website 🔗](https://trollz.entraptadoeztech.nya.je/) |
 | **Marty Games** | Your #1 free unblocked game hub! | [Play Now 🎮](https://marty-games.github.io) |
 
 ---
