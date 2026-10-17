@@ -20,4 +20,4 @@ Here are some out of this world projects created by our gang:
 
 We lowkey looking for members to join **The Space Outlaws** so if you got a project you want to build, or just want to collaborate with a cool team, we'd love to have you.
 
-* **Contact on Discord:** Direct Message [@Sp3ceOutlaw](https://discord.com/users/1314751216739291156) to get involved!
+* **Contact on Discord:** Direct Message [@entraptadoeztech](https://discord.com/users/1314751216739291156) to get involved!
